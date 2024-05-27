@@ -9,4 +9,4 @@ Integrantes:
 3. Isaias Porto de Freitas Junior
 4. gabriel sombra de oliveira
 5. albertine felipe dos santos oliveira
-6. ...
+6. lucas de souza santos 
